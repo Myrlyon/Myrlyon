@@ -12,6 +12,4 @@
 ꦮꦮꦭ꧀ꦗꦂꦢ꧀, ꦥꦼꦠꦼꦁ ꦭꦤ꧀ ꦱꦸꦫꦩ꧀,
 ꦎꦫ ꦆꦤ ꦧꦸꦩꦶ, ꦭꦂ꦳ꦶꦠ꧀, ꦮꦠꦮ ꦏꦭꦶ.
 ꦦꦂꦂꦂꦤ꧀ ꦚ꧀ꦚꦂꦮꦺ ꦗꦂꦂꦢ꧀ ꦱꦏ ꦎꦫ ꦆꦤ,
-ꦧꦤ꧀ꦗꦸꦂ ꦕꦃ ya ꦭꦤް ꦥꦼꦠꦼꦁ, ꦕꦩ꧀ꦥꦸꦂ ꦭꦤ꧀ ꦏꦠꦺꦴꦤ꧀. brick grid stove man carry borrow result feel vanish desk abstract stairs
-
-
+ꦧꦤ꧀ꦗꦸꦂ ꦕꦃ ya ꦭꦤް ꦥꦼꦠꦼꦁ, ꦕꦩ꧀ꦥꦸꦂ ꦭꦤ꧀ ꦏꦠꦺꦴꦤ꧀. brick grid stove man carry borrow result feel vanish desk abstract stairs . doors elephant cosmos music painting complicated
