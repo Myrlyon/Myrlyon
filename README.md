@@ -7,9 +7,9 @@
         <img src="https://visitcount.itsvg.in/api?id=d&icon=0&color=7" alt="Visitor Count">
       </a>
     </td>
-<!--     <td>
+    <td>
       <img src="https://github-readme-streak-stats.herokuapp.com/?user=Myrlyon&theme=gruvbox&hide_border=true">
-    </td> -->
+    </td>
   </tr>
 </table>
 <col>
