@@ -11,7 +11,12 @@
       <img src="https://github-readme-streak-stats.herokuapp.com/?user=Myrlyon&theme=gruvbox&hide_border=true">
     </td>
   </tr>
+  <tr>
+    <td colspan="2">‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+    </td>
+  </tr>
 </table>
+<col>
 در آغاز جهان، تیره و تاریک بود،
 نبودی نه زمین، نه آسمان، نه رود.
 جهان را خداوند، از نیستی آفرید،
@@ -20,4 +25,4 @@
 ꦮꦮꦭ꧀ꦗꦂꦢ꧀, ꦥꦼꦠꦼꦁ ꦭꦤ꧀ ꦱꦸꦫꦩ꧀,
 ꦎꦫ ꦆꦤ ꦧꦸꦩꦶ, ꦭꦂ꦳ꦶꦠ꧀, ꦮꦠꦮ ꦏꦭꦶ.
 ꦦꦂꦂꦂꦤ꧀ ꦚ꧀ꦚꦂꦮꦺ ꦗꦂꦂꦢ꧀ ꦱꦏ ꦎꦫ ꦆꦤ,
-ꦧꦤ꧀ꦗꦸꦂ ꦕꦃ ya ꦭꦤް ꦥꦼꦠꦼꦁ, ꦕꦩ꧀ꦥꦸꦂ ꦭꦤ꧀ ꦏꦠꦺꦴꦤ꧀. brick grid stove man carry borrow result feel vanish desk abstract stairs . complicated cosmos music  
+ꦧꦤ꧀ꦗꦸꦂ ꦕꦃ ya ꦭꦤް ꦥꦼꦠꦼꦁ, ꦕꦩ꧀ꦥꦸꦂ ꦭꦤ꧀ ꦏꦠꦺꦴꦤ꧀ . brick grid stove man carry borrow result feel vanish desk abstract stairs . complicated cosmos music  
